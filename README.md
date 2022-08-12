@@ -4,8 +4,6 @@
 #### 📫 How to reach me:
   - Email:    mohamed_zanoon@hotmail.com
   - LinkedIn: https://www.linkedin.com/in/mohamed-zanoon
-  - Mobile:   +20 1060 068 375
-
 
 
 I was a student at the information technology institute (ITI), system development department, in the past I was a student at the faculty of science at the department of pure mathematics and computer science.
