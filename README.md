@@ -4,6 +4,7 @@
 #### 📫 How to reach me:
   - Email:    mohamed_zanoon@hotmail.com
   - LinkedIn: https://www.linkedin.com/in/mohamed-zanoon
+  - Medium:   https://medium.com/@mohamed_zanoon
 
 
 I was a student at the information technology institute (ITI), system development department, in the past I was a student at the faculty of science at the department of pure mathematics and computer science.
